@@ -1,0 +1,2 @@
+# premium-sglass-design-001-window-design-cartoon-template
+Stuck sketching stained glass designs in scattered notebooks and messy spreadsheets? The Window Design Cartoon Template transforms how heritage craftspeople, designers, and studios visualize, organize, and pitch their most intricate window concepts—all inside Notion.  This purpose-built Notion template combines cartoon-style window design layouts w
